@@ -12,6 +12,7 @@ Obliterate the Galaxy.
 
 What does this mean in detail?
 
-
-
+1. Give Birth to a Galaxy-Obliterating Product or Service
+2. Drastically Push the Human Race Forward
+3. Found a $3 trillion dollar company.
 
